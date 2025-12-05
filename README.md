@@ -1,2 +1,0 @@
-# entrevista
-proceso de seleccion
